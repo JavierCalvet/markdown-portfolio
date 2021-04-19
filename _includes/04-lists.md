@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+:+1: Comprar
+:+1: poner la lavadora
+:+1: estudiar ingles
