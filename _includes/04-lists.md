@@ -1,0 +1,3 @@
+- :+1: Comprar
+- :+1: poner la lavadora
+- :+1: estudiar ingles
